@@ -2,6 +2,8 @@
 
 Achieving fat loss and getting into great shape requires a systematic approach that combines proper nutrition, regular exercise, and healthy habits. Here’s a step-by-step guide to help you reach your goals effectively:
 
+![fat loose](/docs/assets/maxresdefault.jpg)
+
 ---
 
 ### 1. **Set Clear Goals**
